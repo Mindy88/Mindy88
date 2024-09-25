@@ -7,6 +7,6 @@
 - 😄 Pronouns: she/her
 
 <!---
-Mindi77/Mindi77 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Mindy88/Mindy88 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
