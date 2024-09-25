@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Mindi77.
+- 👋 Hi, I’m @Mindy88.
 - 👀 I’m passionate about HealthTech R&D and focused on expanding these innovations globally.
 - 🌱 Currently, I’m studying public policy to help achieve these goals from a policy perspective.
 - 💞️ I’m looking to collaborate with startups to improve global health.
