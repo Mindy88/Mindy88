@@ -3,7 +3,7 @@
 - 🌱 Currently, I’m studying public policy to help achieve these goals from a policy perspective.
 - 💞️ I’m looking to collaborate with startups to improve global health.
 - ✨ I believe AI holds immense potential in advancing global health
-- - 📫 Feel free to reach out to me via text.
+-  📫 Feel free to reach out to me via text.
 - 😄 Pronouns: she/her
 
 <!---
